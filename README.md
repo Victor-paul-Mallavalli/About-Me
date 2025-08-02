@@ -2,7 +2,7 @@
 
 📧 victormallavalli7@gmail.com  
 📞 +91 8008677750  
-🔗 [LinkedIn](https://linkedin.com/in/mallavalli-victor-paul-a1a632299) • [GitHub](https://github.com/Victor-paul-Mallavalli)
+🔗 [LinkedIn](https://www.linkedin.com/in/victor-paul-mallavalli-a1a632299/) • [GitHub](https://github.com/Victor-paul-Mallavalli)
 
 ---
 
